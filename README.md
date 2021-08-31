@@ -1,4 +1,4 @@
-### Hi there 👋     
+### Fala Galera =)     
 Influencer 
 Recem Casado
 Ama Tatuagem 

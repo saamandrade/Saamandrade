@@ -1,7 +1,7 @@
-### Fala Galera =)     
-Influencer 
-Recem Casado
-Ama Tatuagem 
+### Fala Galera =),     
+Influencer,
+Recem Casado,
+Ama Tatuagem &
 Moraria na Inglaterra de tanto que gosta de chá!!
 
 <!--

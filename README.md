@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hi there 👋     
+Influencer 
+Recem Casado
+Ama Tatuagem 
+Moraria na Inglaterra de tanto que gosta de chá!!
 
 <!--
 **saamandrade/Saamandrade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
